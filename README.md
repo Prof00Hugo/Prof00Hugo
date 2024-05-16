@@ -15,4 +15,5 @@ Eu sou Evilyn 🏳️‍🌈
 
 
 
-![]( https://tenor.com/pt-PT/view/billie-billie-eilish-billie-eilish-side-eye-side-eye-oscars-gif-206182396511117387 )
+![]( https://tenor.com/pt-PT/view/flipping-hair-back-regina-george-mean-girls-mascara-running-homecoming-outfit-ruined-gif-2386220426779859464
+)
